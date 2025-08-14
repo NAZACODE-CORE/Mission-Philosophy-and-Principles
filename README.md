@@ -64,3 +64,4 @@ We believe this document will serve as a guiding thread for all who share V.I.E.
 
 This enhanced version adheres to the highest corporate standards—cohesive, inspiring, and sufficiently formal for use as an important foundational document for V.I.E..
 
+https://acrobat.adobe.com/id/urn:aaid:sc:AP:f37a0796-b581-4864-a635-c23665779931
